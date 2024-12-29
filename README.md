@@ -30,7 +30,7 @@ As a gifted creative, academic and Christian, I hope to:
 * Secondly, Writing a creative code to disseminate the knowledge.
 * Finally, making the conglomerated, compounded and hopefully perfect outcome readily available through a website with a plethora of webpages. Ultimately, provide answers to some of the aforementioned areas of profound importance with just a click and scrol!
 
-* ## Precisely,
+## Precisely,
 
 * The topics that I would like to publish about on my websites include, but are not limited to,
  1. The Christian Faith
