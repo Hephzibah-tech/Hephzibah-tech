@@ -27,7 +27,7 @@ Isn't that reassuring?
 ## I'll tell you what qualifies my absolute optimism about the feasibility of empowering humanity through sound knowledge in some of the mentioned topics 
 As a gifted creative, academic and Christian, I hope to:
 * First, create and consolidate knowledge through  research and sharing personal and, other people's experiences
-* Secondly, Writing a creative code to of disseminate the knowledge.
+* Secondly, Writing a creative code to disseminate the knowledge.
 * Finally, making the conglomerated, compounded and hopefully perfect outcome readily available through a website with a plethora of webpages. Ultimately, provide answers to some of the aforementioned areas of profound importance with just a click and scrol!
 
 * ## Precisely,
